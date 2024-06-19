@@ -20,6 +20,9 @@ Career Goals: 1. Enter in a entry level cybersecurity job and gain expereince
                  have an addiction. 
               4. be able to create an AI tool that helps with number 3. 
 
+Contact info: Email: buhlebawuti44@gmail.com
+              
+
 <!--
 **buhle-max/buhle-max** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
